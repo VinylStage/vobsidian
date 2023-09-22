@@ -20,6 +20,8 @@ Email: vinylstage98@gmail.com
 
 [Github](https://github.com/VinylStage)
 
+[Instagram](https://www.instagram.com/sang_vinyl/)
+
 [Youtube](https://youtube.com/@vinylstage)
 
 [Youtube2](https://youtube.com/@danyrecipe)
